@@ -1,1 +1,1 @@
-https://Tata-Tatsiana.github.io/rsschool-cv/cv
+https://Tata-Tatsiana.github.io/rsschool-cv/
